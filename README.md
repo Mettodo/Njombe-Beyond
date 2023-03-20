@@ -19,4 +19,4 @@ In addition, we pay product and mould designers 20% of their "theoretical" payme
 ### Marketing
 Sales oriented tasks are rewarded based on sales :) 
 
-And for all the other contribution, we are happy to discuss new arrangements ;)
+And for all the other contributions, we are happy to discuss new arrangements ;)
